@@ -1,5 +1,5 @@
 Hi. Im @ZippItArj and I em new here :) and I hope to get started learning Hacking.
-I’m interested in PC`s,hacking, MC and Girls. I`em a X junck. Was on heroin fore 25 years but clean know fore 10 yers time.
+I’m interested in PC`s,hacking, MC and Girls. I`em a X juncky. Was on heroin fore 25 years but clean know fore 10 yers time.
 I’m currently learning Python programming and Linux kali, nmap-ng, Wireshark,Burpsuite, wifi hacking is what I like to learn more aboute.
 I’m looking to collaborate on whid some who can help me get started and have some XP to learn me :) in Python and Linux etc,
 How to reach me. If u wanne reach me? me email is cellefsen19@gmail.com Will bee happy if eny help is out there :)
